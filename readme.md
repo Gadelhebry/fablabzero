@@ -1,0 +1,3 @@
+## learing 
+# first day
+- interna
